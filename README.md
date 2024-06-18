@@ -1,3 +1,2 @@
 -  Hi, I’m Hiighgho2triider! im still trying to make this as im not used to this type of formatting
-- https://hiighgho2triider.123guestbook.com/
-- https://losersystem.straw.page/ github
+-https://losersystem.straw.page/
